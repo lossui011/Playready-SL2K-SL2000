@@ -1,2 +1,2 @@
 # Playready-SL2K-SL2000
-drm pyplayready sl2000 sl3000 hisense lg cheap certs zgpriv bgroupcert .prd API
+legit affordable sl3000s/API contact lossui011@proton.me peacocktv - skyshowtime - nowtv - disney+ - amazon - canal+ - moviesanywhere - netflix solution and much more
